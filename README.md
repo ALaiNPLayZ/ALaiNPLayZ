@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **harshsinghparihar9467@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1vR8FAVn1z8gJoPAf31_PU8xwRzNwa5KO/view?usp=sharing](https://drive.google.com/file/d/1vR8FAVn1z8gJoPAf31_PU8xwRzNwa5KO/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1XUp70hcQE62eoa13OMZTvKYGDVvLkvYc/view?usp=sharing)
 
 - ⚡ Fun fact **I can beat you at any game of your choice.**
 
